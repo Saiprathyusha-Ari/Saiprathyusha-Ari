@@ -30,7 +30,6 @@
 
 ### Connect with me
 
-LinkedIn: [Add your LinkedIn URL]
 
 Email: [saiprathyushanayak@gmail.com](mailto:yourmail@gmail.com)
 
